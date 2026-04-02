@@ -47,9 +47,9 @@ Nous accompagnons nos clients dans leur croissance en leur proposant des solutio
 ---
 
 ## 📞 Contact  
-📧 Email : contact@mz-agency.com  
-🌐 Site web : www.mz-agency.com  
-📱 Réseaux sociaux : @mzagency  
+📧 Email : contact@mzagency.be  
+🌐 Site web : www.mzagency.be  
+📱 Réseaux sociaux : @MZ_AGENCY  
 
 ---
 
